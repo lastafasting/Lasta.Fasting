@@ -5,7 +5,7 @@ We all know that losing weight takes hard work and dedication. But what if there
 
 Collagen is the most abundant protein in our bodies, and it's essential for our skin, hair, nails, and joints. But collagen also has some amazing benefits for weight loss.
 
-[Collagen foods] (https://lasta.app/collagen-food-sources/) app comes in handy for beginners of intermittent fasting.
+[Collagen foods](https://lasta.app/collagen-food-sources/) app comes in handy for beginners of intermittent fasting.
 are a great way to naturally enhance your body's collagen levels. For one, collagen can help you build lean muscle mass. Lean muscle burns more calories than fat, so building more muscle can help you boost your metabolism and burn more calories throughout the day. Collagen also helps to repair and rebuild muscle tissue, which is essential for recovery after exercise.
 
 In addition, collagen can help to boost your metabolism. Protein helps to boost metabolism by increasing thermogenesis, which is the process by which your body burns calories to digest food. Collagen is a high-protein food, so it can help you boost your metabolism and burn more calories throughout the day.
